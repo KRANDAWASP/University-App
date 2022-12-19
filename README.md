@@ -1,1 +1,1 @@
-This is my fisrt in charge duty so do not hesitate reignate lights:)
+This is my first in charge duty so do not hesitate reignate lights:)
